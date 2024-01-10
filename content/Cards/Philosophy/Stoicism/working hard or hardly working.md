@@ -1,0 +1,4 @@
+- being busy doesn't mean that you are working hard, are you really that [[productive]] if you are busy
+- we tend to associate busyness with goodness and believe spending many hours at work should be rewarded
+- instead evaluate ==what== you are doing and ==why== you are doing it and ==where== accomplishing it will take you
+	- if you don't have a good answer to these questions while working, stop

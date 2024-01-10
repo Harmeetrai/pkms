@@ -1,0 +1,3 @@
+It is essential that you learn to take action before you feel like doing it. Taking action builds momentum and creates motivation. These feelings will not come to you spontaneously; you have to generate them. 
+
+You have to inspire yourself, you have to move. You have to simply begin and allow your life and your energy to reorient itself to prefer the behaviors that are going to move your life forward, not the ones that are keeping you held back.

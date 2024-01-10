@@ -1,0 +1,3 @@
+When we are faced with resentment, what we instead must do is reinvent our image of those around us or those we have perceived as having wronged us. Other people are not here to love us perfectly; they are here to teach us lessons to show us how to love them—and ourselves—better.
+
+When we release the ideas we have about who they should be, we can see them for who they are and the role they are meant to play in our lives. Instead of focusing on how they should change, we can focus instead on what we can learn.

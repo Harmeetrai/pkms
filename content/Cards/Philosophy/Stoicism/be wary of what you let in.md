@@ -1,0 +1,6 @@
+- how much harder is it to do the right thing when you are surrounded by the wrong people?
+- how much harder is it to stay positive inside the negativity of what you consume?
+- how much harder is it to focus on your own issues when you're distracted with other people's dramas and conflict
+- we have a guard in our minds and decide what we actually want to let in
+	- uninvited guests might arrive at your house, but that doesn't mean you have to let them in
+	- keep these uninvited guests out of your mind

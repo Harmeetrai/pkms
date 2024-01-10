@@ -1,0 +1,3 @@
+# Drifting through Life
+
+For the longest time, I have felt as if im just going through life, not not living it. It felt as if life was a todo list. No matter how miserable I got, I needed to complete the tasks at hand, eventhough I didn't like it. This is different from [[discipline]] and the grind culture, I felt as if [[life's meaning and purpose|life had no meaning and purpose]]. Don't drift through life, you will only have one chance to live, one chance that your going to be in your 20s, one chance to chase your dreams and have a [[noble pursuit]] that brings you [[happiness]]. 

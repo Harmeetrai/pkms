@@ -1,0 +1,3 @@
+# Preferred Indifferents
+
+Preferred Indifferents are [[living according to nature]]. The preferred indifferents include life, health, pleasure, beauty, strength, wealth, good reputation, and noble birth. They will follow [[noble pursuit]], however, in some cases this may cause more harm than good. Always being fixated in one thing, such as pleasure, beauty, wealth, can turn into a dark trait. Your [[happiness]] is not determined by external factors, one must be content with where he is. Moderation is key.

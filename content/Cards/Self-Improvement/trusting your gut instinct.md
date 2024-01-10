@@ -1,0 +1,5 @@
+Your gut instinct functions to make things better, whereas your imagination can often make things worse
+
+- It does not scream. It does not panic. It does not pump your body with adrenaline to get your attention. It is not angry. It is the wave of clarity that overcomes you in the middle of your darkest moments, in which something tells you: *It’s going to be all right; it’s not as bad as you think, everything is okay.*
+- When people talk about using their instincts to craft a life they love, this is what they mean: that they are obeying what their subtle intuition tells them they feel best doing. Sometimes, your instinct can move you toward your art, even if it makes you uncomfortable and resistant 
+- You begin experiencing feelings of peace and joy in your life when you condition yourself to take repeated daily actions that facilitate clarity, calmness, healthfulness, and purposefulness, not the other way around 

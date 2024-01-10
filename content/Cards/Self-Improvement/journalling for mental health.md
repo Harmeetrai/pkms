@@ -1,0 +1,3 @@
+[[Andrew Huberman]] talks about in his prodcast for science based tools for journalling to improve mental health that journalling about traumatic events that are your most painful helps improve our [[mental health]].
+
+The journalling should be done as follows. Journal about your most painful memory. Something that makes you feel discomfort/pain. Journal straight for 10-15 mins. Then repeat this for 4 different days or 4 different weeks.

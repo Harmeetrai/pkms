@@ -1,0 +1,5 @@
+Using our attention, we learned a whole reality has rules on how we should behave in society. If we follow these rules, we are [[dopamine|given a reward]], which is attention. Everybody wants to receive attention as it has been engrained as a reward. As children we didn't have the opportunity to choose our beliefs. We listen to adults and put our faith in what is being taught. This is the domestication of humans. Through this domestication, we learn how to act, how to live, how to dream. 
+
+With the [[fear of others|fear of being punished]] and fear of not getting the reward, we start pretending to be what we are not, just to please others, just to be good enough for someone else. We pretend since we are afraid of being rejected.
+
+The belief system that is engrained as children is like a [[book of law]] that rules our minds. Without questioning it, the book of law is the truth. We can't question it as it goes against who we think we are. These agreements of who we are are formed and they rule our dream of reality. 

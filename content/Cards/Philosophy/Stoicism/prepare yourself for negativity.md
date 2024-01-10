@@ -1,0 +1,3 @@
+- you probably will encounter someone who is negative in your day, but will the person's negativity affect you?
+- no one can implicat negativity on you and don't be angry or upset due to this encounter. Everyone has their reasons to be negative, so don't [[hate]] them. Treat them with [[kindness]] and [[respect]]
+- be prepared for negativity and act with [[patience]], [[forgiveness]], and understanding

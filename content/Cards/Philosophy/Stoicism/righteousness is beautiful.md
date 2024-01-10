@@ -1,0 +1,7 @@
+- our standards for what's attractive are incredibly un-stoic in what we prize and extol things people have almost no control over
+	- being tall, facial features, genetics
+- if it really beautiful to win the genetic lottery? Or should beauty be contingent on the choices,  actions, and attributes we develop?
+- An even keel, a sense of justice, a commitment to duty, these are ==beautiful traits== and they go much deeper than appearances
+- starting today, act with justice, keep an even keel, and be in [[control of yourself]]
+	- this will involve [[dedication]] and [[sacrifice]]
+- if this is not beautiful, then what is?

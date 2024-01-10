@@ -1,0 +1,7 @@
+- Obstacles are a part of life, things happen and stuff gets in our ways
+- But nothing can stop the stoic mind when it's operating properly, because in every course of action, it has retained a 'reverse clause'
+- 'Reverse clause' is a backup option
+	- friend betrays us, reverse clause is to learn from how this happened and how to forgive this person's mistake
+	- if in prison, our reverse clause is that we can refuse to be broken by this change of events and try to be of service to our fellow prisoners
+- Our progress can be impeded or disrupted but the [[mind]] can always be changed (it retains the powers to redirect the path)
+- [[Murphy's law]] states that "if anything can go wrong, it will"

@@ -1,0 +1,1 @@
+The belief system that is engrained as children is like a book of law that rules our minds. Without questioning it, the book of law is the truth. We can't question it as it goes against who we think we are. These agreements of who we are are formed and they rule our dream of reality. 

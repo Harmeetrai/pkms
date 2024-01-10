@@ -1,0 +1,1 @@
+Suffering is intergral to living a good life. What does my life mean if everything I got was easy? There's meaning to be found in struggle, thus, struggle greatly. Fail and pick yourself back up

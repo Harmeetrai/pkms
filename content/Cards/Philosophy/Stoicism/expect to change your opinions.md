@@ -1,0 +1,12 @@
+- how often do we begin some project certain we know exactly how it will go?
+- how often do we meet people and think we know exactly who and what they are?
+- how often are these assumptions proved to be completely and utterly wrong
+- this is why we must fight our biases and preconceptions
+	- they are a [[liability]]
+- ask yourself: 
+	- What haven't I considered?
+	- Why is this thing the way it is? 
+	- Am I part of the problem here or the solution?
+	- could I be wrong here?
+- Remember this on your [[philosophy]] journey, **we are not as smart and as wise as we'd like to think we are**
+- if we ever do want to become [[wise]], it comes from [[question yourself]] and from [[humility]]

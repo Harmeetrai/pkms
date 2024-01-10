@@ -1,0 +1,1 @@
+A people-pleaser is **a person who puts others needs ahead of their own**. This type of person is highly attuned to others and often seen as agreeable, helpful, and kind, but people-pleasers can also have trouble advocating for themselves, which can lead to a harmful pattern of [[self-sabotage|self-sacrifice or self-neglect]].

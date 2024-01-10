@@ -1,0 +1,5 @@
+- most important practice is [[stoicism]] is differentiating between what we can change and what we can't
+- what we have influence over and what we do not
+- no matter how hard you try, we cannot make a person like your 
+- can't magically become taller
+- spend more time on what we can control, we can change our futures

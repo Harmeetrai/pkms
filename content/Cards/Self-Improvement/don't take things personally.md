@@ -1,0 +1,3 @@
+When we hear opinions of ourselves, such as your dumb, ugly, stupid, that is poison. Don't take it personally. Many people are dealing with their own problems. It should not effect me as I know who I am. I don't have the need to be validated and accepted.
+
+Do not expect people to tell you the truth because they also lie to themselves. You have to trust yourself and choose to believe or not to believe what someone says to you. 

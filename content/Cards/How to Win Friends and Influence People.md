@@ -1,0 +1,5 @@
+- You can make more friends in two months by becoming more interested in other people than you can in two years by trying to get people interested in you
+- Communication is simply an outward manifestation of our thoughts, our intentions, and our conclusions about the people around us.
+- The two highest levels of influence are achieved when (1) people follow you because of what you’ve done for them and (2) people follow you because of who you are. 
+	- In other words, the highest levels of influence are reached when generosity and trustworthiness surround your behavior.
+- Become meaningful in your interactions and the path to success in any endeavor is simpler and far more sustainable. The reason? People notice. People remember. People are moved when their interactions with you always leave them a little better.

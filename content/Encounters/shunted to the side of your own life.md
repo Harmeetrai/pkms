@@ -1,0 +1,3 @@
+# shunted to the side of your own life
+
+By ignoring what you really want to do and being miserable, your doing yourself injustice of not living a life you want. We only have one chance to live, time is going to move whether you like it or not. The pain of [[regret]] hurts much worse than the pain of [[failure]]. Get out of your own way, you are only limiting your own potential. What if your meant to live a different life than what you are living if you only followed through with taking action and being [[discipline|disciplined]]. 

@@ -1,0 +1,5 @@
+- we always compare and think what if we had this much [[wealth]], fame, power.
+	- that person has an expensive car, their kids are super smart, they look so pretty, I could never reach that level
+- the wealthy earn and ultimately get what they want out of spending: their [[reputation]]
+	- but is it really that impressive to spend?
+- learn where to spend your money, [[paying off debt]] and [[donating]] to [[charities]] is much more impressive given the wealth

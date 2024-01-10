@@ -1,0 +1,9 @@
+- woman say they want to meet a nice, good guy and get married, but they spend most of their time with jerks and people who usually don't have any direction in life (who follow [[bad habits]])
+- A man says that he wishes he could get a good job that pays well, yet he doesn't take the [[Efforts]] to learn and look for the job
+- all of these people are [[deceived]] and divided
+	- one hand is working against the other
+- "There is something of a civil war going on within all of our lives" - [[Martin Luther King]]
+	- a way between good and bad parts of your soul ([[the voices in your head]])
+- Stoics suggest the war is usually a result of our conflicting [[desires]]
+- we need to stop and ask ourselves: 
+	- "Ok, what do I really want? What am I actually after here? Is this part of my goal, or a path in the opposite direction?"

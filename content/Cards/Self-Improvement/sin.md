@@ -1,0 +1,1 @@
+A sin is everything you do that goes against yourself.

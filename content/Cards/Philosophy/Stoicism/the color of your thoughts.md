@@ -1,0 +1,5 @@
+- if you bend your body into a sitting position every day for long enough, then the curvature of your spine changes
+- same goes for the mind
+	- if you hold a perpetually megative outlook, soon everything you encounter will be negative
+	- close of your mind and you'll be closed-minded
+	- color it with the wrong thoughts and your life will be dyed the same

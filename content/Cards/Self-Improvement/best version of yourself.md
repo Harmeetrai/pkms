@@ -1,0 +1,5 @@
+# Best Version of Yourself
+---
+The best possible version of yourself—the most [[love|loving]], [[kindness|kind]], [[productivity|productive]], and [[self-awareness|self-aware]] version—is who you really are. Everything else is the byproduct of coping mechanisms you’ve developed and picked up from other people.
+
+Mentally strong people are planners. They think ahead. They prepare. They do what’s best for the long-term outcome. You might think that this disconnects them from the moment, but the opposite is true. [[stop worrying|Worrying]] disconnects you from the moment. Overthinking disconnects you from the moment. When you are consistently sidelined from your own [[anxiety]], it’s because you don’t have a plan regarding the thing that’s making you scared. In order to become the best version of yourself, you need to plan and stick to that plan by using [[just do it|action]], [[discipline]], [[self-control]]

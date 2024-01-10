@@ -1,0 +1,3 @@
+# Audio Compression
+---
+[[lossless compression]] audio includes the FLAC format (Free Lossless Audio Codec). [[lossy compression]] audio using [[perceptual coding]] which basically means that we hide/remove areas where humans will not see or hear it. The [[psychoacoustic model]] is used to calculate the audio content possible for compression. [[MPEG Audio]] proceeds by first applying a filter bank to the input, to break the input into its frequency components.

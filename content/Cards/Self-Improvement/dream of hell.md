@@ -1,0 +1,1 @@
+Whenever we feel the emotions of anger, jealousy, envy, or hate, we experience a fire burning within u. We are living in a dream of hell. Take a look at human society, we see a place so difficult to live in because it is ruled by fear. Throughout the word, we see human suffering, anger, revenge, addictions, voilence, and tremendous injustice. 
