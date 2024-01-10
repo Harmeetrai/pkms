@@ -1,1 +1,0 @@
-I believe that meaning is found individually, there is no answers from external sources, one must look inward.

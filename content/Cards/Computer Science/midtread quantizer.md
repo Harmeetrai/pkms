@@ -1,1 +1,0 @@
-The midtread quantizer has zero as one of its output values, hence, it is also known as dead-zone quantizer, because it turns a range of nonzero input values into the zero output.

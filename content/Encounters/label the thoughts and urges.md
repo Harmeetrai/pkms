@@ -1,1 +1,0 @@
-When we have the urge to take a negative action or addiction, such as I need to scroll on my phone right now. Instead of picking up the phone, take a moment to ask why do I need to scroll on my phone. Become a detective and realize that I don't really need to but I want to.

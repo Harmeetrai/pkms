@@ -1,6 +1,0 @@
-- small things/actions add up
-- someone is a [[good person]] not because they say they are but because they take [[good action]]
-- one does not magically get one's act together, it is a matter of many individual choices
-- practicing [[atomic habits]]: getting up at the same time, making bed, resisting shortcuts and pleasures, investing in yourself, and doing your work
-- these small steps lead to exponential growth
-- make the right choices and habits and you will grow

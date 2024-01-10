@@ -1,6 +1,0 @@
-Psychic thinking breeds anxiety and depression. It’s not just that something scares or upsets us; it’s that we believe that the thought must not only be real, but predictive of future events. Instead of feeling like we are having a down day, psychic thinking makes us assume we are having a terrible life
-
-- A faulty inference is when you come up with a false conclusion based on valid evidence.
-  This means that what you’re seeing, experiencing, or understanding might be real, but the assumptions that you are piecing together from it are either not real or are highly unlikely.
-- Correcting faulty inferencing begins with first being aware that you’re doing it. In the majority of cases, once you realize that you’re thinking in a false dichotomy or making a hasty generalization, you stop doing it. You understand what it is, and you let it go.
-  Training your brain to stop doing it automatically takes time. Think of your mind like a search engine that autofills your terms. If it’s something you’ve input many times over the years, it’s still going to come up for a while. You have to work on consistently adding new thoughts, options, and stimuli to shift what it comes up with naturally.

@@ -1,1 +1,0 @@
-Observe that if these urges and thoughts are leading you to feeling like you are broken. What has this addiction done for you, without criticism and judgement, note the damage it has done to you.

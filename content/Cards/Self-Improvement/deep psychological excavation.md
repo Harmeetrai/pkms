@@ -1,1 +1,0 @@
-Deep psychological excavation is when we pinpoint the traumatic event, release unprocessed emotions, find healthier ways to meet our needs, reinvent our self-image, and develop principles such as [[emotional intelligence]] and [[resilience]].

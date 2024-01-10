@@ -1,5 +1,0 @@
-First, you need to understand why you’re upset or the reason why something is bothering you so much. Without clarity on this, you’ll continue to waste your time mulling over the details without really understanding what’s hurting you so much.
-  
-Next, you have to validate how you feel. Recognize that you are not alone; anyone in your situation would probably feel similarly (and does) and that what you feel is absolutely okay. In doing this, you can allow yourself a physical release such as crying, shaking, journaling about what you feel, or talking to a trusted friend.
-
-Once you are clear on what’s wrong and have allowed yourself to fully express the extent of your emotions, you can determine how you will change your behavior or thought process so that you get an outcome that you really want in the future. 

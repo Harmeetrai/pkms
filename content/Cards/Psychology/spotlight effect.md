@@ -1,5 +1,0 @@
-# Spotlight Effect
----
-The spotlight effect is the [[psychology|psychological]] phenomenon where we imagine that our lives are performative, or “on display” for others to consume. We remember the last two or three embarrassing things we have done and imagine that others are thinking about them actively as well. Can you recall the last two or three embarrassing things someone else did? Of course you can’t. Because you aren’t paying attention.
-
-Spotlighting gives us the false impression that the world is all about us, when it is not. Instead of trying to predict what will happen next, our energy is better used when it’s focused intently on the moment—the infinite “now,” the mystics would say—because the truth is that the past and future are illusions in the present, and all we have is the present. Instead of trying to use your intelligence to hack what’s next, try to get better at where you are currently. That’s what’s really going to change the outcomes of your life.

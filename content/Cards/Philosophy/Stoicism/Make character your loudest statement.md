@@ -1,4 +1,0 @@
-- monks wear robes, priest puts on his collar, banker wears expensive suits
-- [[stoicism]] has no uniform and resembles no stereotype
-	- they are not identifiable by looks or by sight or by sound
-	- the only way to recognize them is by their [[character]], make your character your statement to others

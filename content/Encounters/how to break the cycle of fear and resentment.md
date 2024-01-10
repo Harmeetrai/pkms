@@ -1,3 +1,0 @@
-# Overcoming fear and resentment
-
-[[fear of yourself]], [[fear of others]], and [[fear of living]] all are every difficult to overcome. We can't control our thoughts, but we can control what we do with those thoughts. One could simply accept that they are having these thoughts and let them go. One must [[stop worrying]] and live in the moment, the short time they have right now to choose the life they want to life. This is the idea of [[Buddhism]]. We become detectives to one's thoughts, we simply acknowledge those thoughts as negative and choose to stay positive.

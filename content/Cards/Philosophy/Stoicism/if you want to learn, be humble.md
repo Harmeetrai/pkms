@@ -1,4 +1,0 @@
-- reality is that we're all guilty of thinking we know it all, and we'd all learn more if we could set that attitude aside
-- as smart or successful we may be, there is always someone better than you
-- if you want to learn (if you want to improve your life), seeking out teachers, philosophers, and great books is a good start
-- but this approach will only be effective if you're [[humble]] and ready to let go of opinions you already have.

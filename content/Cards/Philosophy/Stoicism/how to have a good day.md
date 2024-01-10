@@ -1,3 +1,0 @@
-- to have a good day: **Do good things**
-- any other source of joy is outside your [[control of yourself | control]] or is non-renewable
-- but this one is all you, all the time, and unending. It is the ultimate form of [[self-reliance]]

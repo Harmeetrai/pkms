@@ -1,7 +1,0 @@
----
-tags: moc
----
-
-# Religion
-
-- [[Sikhism]]

@@ -1,6 +1,0 @@
-- most people tend to be experts in fantasy sports, celebrities, math, science, etc
-- we can get very good at what we are **paid** to do
-- yet our own lives, habits, and tendencies might be a mystery to us
-- at the end of your life, what expertise will be most valuable:
-	- your knowledge of what you got paid to do
-	- or your understanding of matters of living and dying, your relationships, your understanding of how to live a fullfilled life

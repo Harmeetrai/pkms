@@ -1,4 +1,0 @@
-- A tidy home, clothes that are easy to reach and put together each morning, a clean kitchen, and an organized desk can help make you more [[productive]]. Paperwork should be filed in one space, your bedroom should be calming, and everything should have a “home” that it can return to at the end of the day.
-- When we are [[self-sabotage|self-sabotaging]] through disorganization, it is because when we are very clean or organized, we get an uneasy feeling. 
-	- That uneasy feeling is what we are trying to avoid, because it is the recognition that now that everything is in order, we must get to work on doing what we need to do or who we want to become. See [[procastination]]
-	- When we leave our spaces messy, we are always a few tasks or priorities away from stepping out and showing up.

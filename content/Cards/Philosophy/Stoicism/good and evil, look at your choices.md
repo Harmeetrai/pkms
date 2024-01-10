@@ -1,5 +1,0 @@
-- [[the right thing to do]] always comes from our [[reasoned choices]]
-- Not whether something is rewarded
-- Not whether something will succeed
-- But whether it is the *right choice*
-- Focus only on your choices (make good choices and actions)

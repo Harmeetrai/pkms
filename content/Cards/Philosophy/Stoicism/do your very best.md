@@ -1,7 +1,0 @@
-- you only get 1 shot today
-- you have 24 hours to take your best shot
-- then this time is gone and lost forever
-- fully inhabit all of today
-- Will you call out "I've got this" and do your very best to be your very best? 
-- What will you manage to make of today before it slips from your fingers and becomes the past?
-- When someone asks you what you did yesterday, do you really want the answer to be **nothing**?

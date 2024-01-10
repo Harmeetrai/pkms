@@ -1,2 +1,0 @@
-- everyone is born to be a good person (that is our job)
-- do your job (become a [[good person]])

@@ -1,8 +1,0 @@
-- The samurai swordsman, [[Miyamoto Musashi]], made a distinction between our "perceiving eye" and our "obersving eye." 
-	- The observing eye sees what is
-	- The perceiving eye sees what things supposedly mean
-- An even is inanimate, It's objective? Simply [[it what is it is]] that's what our observing eye sees
-- our perceiving eye sees, this brings disturbance with it and then blaming the event:
-	- this will ruin me 
-	- how could this have happened
-	- Ugh! It's so-and-so's fault

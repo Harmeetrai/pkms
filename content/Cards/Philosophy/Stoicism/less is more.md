@@ -1,3 +1,0 @@
-- in most areas of life, the saying "less is more" stands true
-- the emperor of rome and most powerful person during his time period (a man on top of the world), [[Marcus Aurelius]] kept telling himself "not to be a person of too many words and too many deeds."
-- this should be a reminder the next time you feel self-indulgent or a little full of yourself ([[ego]]), the next time you feel like impressing people

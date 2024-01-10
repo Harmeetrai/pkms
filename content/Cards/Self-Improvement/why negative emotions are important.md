@@ -1,7 +1,0 @@
-Each “negative” emotion we experience comes with a message, one that we do not yet know how to interpret. This is when a single challenge begins to become a chronic issue. Unable to honor and use the guidance of the emotion, we shut the feeling down, store it in our bodies, and try to avoid anything that might bring it up again. This is when we become sensitive to the world around us, because there are a lot of repressed feelings mounting. 
-
-The things that are bothering you most right now are not external forces trying to torture you for the sake of it— they are your own mind identifying what in your life can be fixed, changed, and transformed. If you continue to not take action, the siren will only get louder, and if you never learn to listen to it, you will probably just disassociate from it and then be a victim to it.
-
-Though we live in an age where people tend to tell us that we should be entirely self-sufficient, and to want or need another person’s presence, validation, or company is a sign of self-insufficiency, that is not an accurate portrayal of what it means to be human, and it severely overlooks the reality of human nature and connection
-
-- What you believe about your life is what you will make true about your life.

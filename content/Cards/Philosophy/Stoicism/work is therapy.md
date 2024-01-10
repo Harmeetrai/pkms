@@ -1,4 +1,0 @@
-- feeling bad after missing the gym for a while or feeling home sick when abroad are feelings that the mind and body are not used to
-- the mind and body are there to be used, and when doing something inproductive, you get this feeling
-- this feeling of frustration is an everyday reality for many people, you are leaving so much of their potential unfulfilled
-- the solution is to simply start working and being [[productive]]

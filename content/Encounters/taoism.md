@@ -1,6 +1,0 @@
-# Taoism
-
- - Central to Taoism is the idea that everything is in a continual state of flux, ceaselessly changing and adapting. Thus, no single idea or thing is to be attached to. Nothing is to be forced in or out of place. All is to be permitted to run its natural course, subject to the one, constant, unchanging truth: everything changes.
-- The Tao is generally translated as the way, which in the context of Taoism, refers to the natural way or order of the universe.
-- Essential to [[taoism]] is living according to the Tao. Put more simply, it is living in accordance with nature. Lao Tzu suggests that one can accomplish this by accepting the fluctuation of everything and giving up rigid judgments, attachments, expectations, and our efforts to control our lives.
-- For Lao Tzu, life broadly is to be lived in this zone. Like how the breath breathes, the heart beats, the birds fly, the fish migrate, the wind blows, the earth spins—all perfectly on their own—the Taoists believe that life operates most functionally when simplified to a more intuitive, natural intelligence.

@@ -1,3 +1,0 @@
-# happiness of pursuit
-
-[[dopamine]] is not about the happiness of pursuit but the [[noble pursuit|pursuit]] of [[happiness]]. The anticipation of often more enjoyable than the experience. It's not about the destination, its about the journey itself as each arrival at the destination is the beginning of a new pursuit. Life is about the experience and memories we have along the way. The true end is our death. Its good to have smaller wins along the way, basically break down each journey into small goals and celebrate them. Be proud of those wins along the way. Soon the wins will add up and you have become closer to the [[the better version of myself|person you want to become]].

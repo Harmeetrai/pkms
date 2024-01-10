@@ -1,3 +1,0 @@
-# Ethical and Moral Well-Being
-
-The Stoics defined the good as “what is complete according to nature for a rational being qua rational being” (Cicero _Fin._ III.33). Having [[virtues]] will help find [[life's meaning and purpose|sense of meaning and purpose]], stoics believe that the only thing that led to [[happiness]] was [[virtues]]. The only thing that necessitates misery and is “bad” or “evil” is the [[corruption of reason]], namely vice. All other things that are not [[good or evil]] are called [[indifferents]].

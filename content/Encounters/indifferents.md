@@ -1,3 +1,0 @@
-# Indifferents
-
-This group of people, named by [[stoicism|stoics]], are neither [[good or evil]]. They don't contribute to live. I would say they are merely [[drifting through life]], hoping someone will come and save them. Within this [[Stoicism's primary aspect involves improving the individual's ethical and moral well-being.|sub-class of stoics]], there are 2 more sub classes [[preferred indifferents]] and [[dispreferred indifferents]]

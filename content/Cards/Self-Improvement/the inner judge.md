@@ -1,3 +1,0 @@
-The inner judge uses what is in our [[book of law]] to judge everything we do and don't do, everything we think and don't think, everything we feel and don't feel. Everytime we do something that goes against the book of law, the Judge says we are guilty, we need to be punished, we should be ashamed. 
-
-The Victim carries the blame, the guilt, the shame. It is the part that says "Poor me, I'm not good enough, im not smart enough, im not attractive enough, im not worthy of love." The big judge agrees and says "Yes, you are not good enough." Since the belief system is so strong, we believe the judge, as it is truth. The book of law makes us feel safe, eventhough we think we are not worthy. That is why we need courage to challenge our own beliefs.

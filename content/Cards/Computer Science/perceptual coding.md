@@ -1,2 +1,0 @@
-# Perceptual coding
-Hide errors where humans will not see or hear it. This is the main technique used in [[audio compression]], the [[psychoacoustic model]] is used to calculate the audio content possible for compression

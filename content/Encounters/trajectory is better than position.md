@@ -1,6 +1,0 @@
-# Trajectory is Better than Position
-
-If you were number 1 in the world last year, but now your at number 2, that feels a lot worse than if you are on an upward trajectory from last year (example 150 last year to 100 this year). Upward trajectory shows that there is constant [[self-improvement|improvement]]. There are 3 types of people climbing the ladder, one at the top, one in the middle, one at the bottom. The best person to be is the person who is still climbing. This idea isn't just for external validation and satisfaction of achievement, there is also this inner satisfaction that I am on this upward trajectory, that there is progress to be made, that I know I could keep climbing. We know where we came from to now. If that trajectory doesn't show signs of improvement, then there must be something done to fix it. Why waste your life at the bottom of the mountain, fix your life and [[The Mountain Is You|keep climbing]].
-
-> people don't love when you have got things, they love you when your in the [[noble pursuit|pursuit]]
-> - Kendrick Lamar

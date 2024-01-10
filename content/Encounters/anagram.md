@@ -1,1 +1,0 @@
-An anagram rearranges the letters of a word or phrase to produce a new word

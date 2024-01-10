@@ -1,1 +1,0 @@
-permutation matrix is a square binary matrix that has exactly one entry of 1 in each row and each column and 0s elsewhere.

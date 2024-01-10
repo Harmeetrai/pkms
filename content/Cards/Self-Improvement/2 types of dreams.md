@@ -1,1 +1,0 @@
-There are 2 types of dreams. Most people know about the dreams when they sleep. That is the imaginated dream, where our minds are free to do whatever. Another type of dream is in reality, when we are awake. Human perception is merely light perceiving light. Everyone is dreaming. It is the main function of the mind, and the mind dreams 24/7. 

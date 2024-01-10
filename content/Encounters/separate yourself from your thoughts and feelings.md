@@ -1,1 +1,0 @@
-You are a passion and passionate observer, you ask yourself why do I need to do this. You now have the choice to be responsible for those urges. You could choose to instead of picking up your phone and scrolling, choose to pick up a book or simply sit with those thoughts and urges and [[meditation|meditate]].

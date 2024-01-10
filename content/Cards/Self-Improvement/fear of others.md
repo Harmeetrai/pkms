@@ -1,4 +1,0 @@
-Social media has likened us all to mini-celebrities in our own circles: We become convinced that everyone around us is disproportionately concerned with the minutiae of our lives.
-In a number of decades, you will be gone. Your home will be sold to a new family. Your job will be taken by someone else. Your kids will be adults. Your work will be done. This isn’t supposed to depress you; it is supposed to liberate you.
-
-Nobody is thinking about you in the way that you think they are thinking about you. They are mostly thinking of themselves. When you feel self-conscious for going grocery shopping in your sweatpants, please know that nobody cares and nobody is looking. When you feel anxious about your accomplishments or lack thereof, please know that for the most part, nobody cares and nobody is looking. This is true of absolutely everything in life.

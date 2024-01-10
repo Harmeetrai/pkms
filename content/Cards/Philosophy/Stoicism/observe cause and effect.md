@@ -1,8 +1,0 @@
-- [[CBT]] (cognitive behavioral therapy) helps patients identify destructive patterns in their thoughts and behavior so they can over time direct and influence them in a more positive direction
-- become an observer of your own thoughts and actions those thoughts provoke
-	- where do they come from? 
-	- what biases do they contain?
-	- are they constructive or destructive?
-	- do they cause you to make mistakes or engage in behavior you later regret?
-- look for patterns and find where cause meets effect
-- break your negative behavior patterns ([[bad habits]]) and then your [[self-improvement]] journey will begin

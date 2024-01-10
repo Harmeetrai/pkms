@@ -1,1 +1,0 @@
-- your [[mind]] is the asset that must be worked on the most and understood best
